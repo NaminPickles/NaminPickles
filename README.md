@@ -2,7 +2,7 @@
 
 Hey! I'm UI/UX Designer. I'm [BoomChanotai](https://github.com/boomchanotai)'s friend!
 
-also [beitch](https://github.com/betich)'s friend
+also [beitch](https://github.com/betich)'s friend.
 
 📚 Computer Engineering, Chulalongkorn University
 
