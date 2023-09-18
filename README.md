@@ -1,8 +1,6 @@
 # Hello I'm Namin Pickles
 
-Hey! I'm UI/UX Designer. I'm [BoomChanotai](https://github.com/boomchanotai)'s friend!
-
-also [beitch](https://github.com/betich)'s friend.
+Hey! I'm UI/UX Designer.
 
 📚 Computer Engineering, Chulalongkorn University
 
