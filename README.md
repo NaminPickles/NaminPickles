@@ -1,5 +1,5 @@
-# Hello I'm Namin Pickles
+Hello I'm Namin Pickles
 
-Hey! I'm UI/UX Designer.
+your fav graphic designer 🥺. (I dont know how to code please help)
 
-📚 Computer Engineering, Chulalongkorn University
+📚 Indrustrial Engineering, Chula.
